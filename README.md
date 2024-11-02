@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @khasim
+- 👀 I’m interested in SAP BTP-IS(CPI)
+- 🌱 I’m currently learning SAP BTP-(CPI)
+- 💞️ I’m looking to collaborate on SOftware Development
+- 📫 How to reach me khasimdudekula2001@gmail.com
+- 😄 Pronouns: Khasim
+- ⚡ Fun fact: I can easily adaptable to any Environment and a Quick learner
